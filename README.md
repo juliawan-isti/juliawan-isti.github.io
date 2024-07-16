@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 
 Reference:
-https://wedday-story.com/anggun-evan/?to=Teh%20Isti
+- https://wedday-story.com/anggun-evan/?to=Teh%20Isti
